@@ -1,2 +1,0 @@
-asfasfasfasf
-ali asu
